@@ -161,6 +161,21 @@ Suggested spices: **Basil**, **Black Olives**, **Lemon**, **Garlic**, **Pepper**
 - Put tofu in.
 - Put in starch water.
 
+#### [Garlic Roasted Seafood](https://saucegrandmaster.com/2022/05/24/garlic-roasted-small-seafood/)
+
+- Put the processed shrimp in a large bowl, add onion, ginger and garlic, two kinds of sauces, small peppers, wine (to deodorize), soak in the refrigerator to keep fresh.
+- Rinse the clams with water, add salt and oil, and let them spit out the sand.
+- Abalone processing, carving cross knife (the shell should also be washed clean).
+- The octopus is also rinsed and then mixed with wine and salt.
+- Heat oil in a pan, add minced garlic, saute until fragrant, add chili, soy sauce, sugar and white chili powder.
+Stir fry evenly, change color, remove and set aside.
+- Boil a pot of water, add ginger, shallots and wine. Bring the clams to a boil and remove.
+- Line a baking sheet with foil and brush with oil.
+- Put in vermicelli, enoki mushrooms, and seafood in sequence (arrange freely)
+- Pour evenly in “5” prepared sauce.
+- Put in the oven, 200 degrees up and down, 20 minutes.
+- Take out and sprinkle with green onions, perfect
+
 #### [葡國雞](https://hk.lkk.com/zh-hk/recipes/portuguese-chicken)
 
 - Prepare 250g of chicken.
